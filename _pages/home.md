@@ -8,4 +8,3 @@ permalink: http://healthyyouthforlife.com/
 published: true
 post_date: 2018-10-30 21:23:24
 ---
-[paypal-donation]
