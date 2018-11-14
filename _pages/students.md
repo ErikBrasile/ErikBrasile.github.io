@@ -5,7 +5,7 @@ author: Erik
 post_excerpt: ""
 layout: page
 permalink: >
-  http://healthyyouthforlife.com/index.php/students/
+  https://healthyyouthforlife.com/index.php/students/
 published: true
 post_date: 2018-10-30 15:30:14
 ---
