@@ -16,5 +16,6 @@ We hope to show that learning about this can be fun through our games and inform
 
 &nbsp;
 
+We hope that when teachers see an change in the students in the classroom that they recognize is for the better they will print out the the pdf below (by clicking on the link)
 
 <a href="https://healthyyouthforlife.com/wp-content/uploads/2018/11/Certificate-Of-Achievement-Award-Brown-Frame.pdf">Certificate Of Achievement</a>
