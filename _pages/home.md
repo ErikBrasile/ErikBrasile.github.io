@@ -15,3 +15,6 @@ We here at HealthyYouthForLife.com want to help educate the children of today ab
 We hope to show that learning about this can be fun through our games and information available to the parents and teachers so that everyone can make a change for the better
 
 &nbsp;
+
+
+<a href="https://healthyyouthforlife.com/wp-content/uploads/2018/11/Certificate-Of-Achievement-Award-Brown-Frame.pdf">Certificate Of Achievement</a>
